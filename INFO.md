@@ -1,4 +1,4 @@
-
+he cant fuck like i can
 add new content and remove strings into info.md 
 fuck it fuck
 git diff lessons
